@@ -1,2 +1,0 @@
-# jcornwall.me
-jcornwall.me
